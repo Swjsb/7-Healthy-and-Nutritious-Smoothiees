@@ -1,1 +1,1 @@
-# 7-Healthy-and-Nutritious-Smoothies.com
+# 7-Healthy-and-Nutritious-Smoothies
